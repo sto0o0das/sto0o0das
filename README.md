@@ -1,4 +1,8 @@
-### Hi there
+### Hi there 🍤
+
+-🍰 　
+-🐱‍🐉
+-🐱‍🏍
 
 <!--
 **sto0o0das/sto0o0das** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
